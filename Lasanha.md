@@ -3,7 +3,7 @@
 ## Ingredientes
 
 * 1 abobrinha grande
-* ~200g de massa de lasanha
+* ~250g de massa de lasanha
 * ~250g de queijo fatiado
 * 2 latas de molho de tomate
 * 1 mãozada de PVT fino
