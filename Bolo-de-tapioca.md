@@ -12,5 +12,7 @@
 ## Instruções
 
 Misture a tapioca com o açúcar em uma forma com tampa. Vá acrescentando o leite aos poucos, misturando bem. Deixe descansar por 10-15m.
+
 Misture o coco ralado e vá acrescentando o leite de coco, misturando bem. Quando estiver uniforme, modele para ficar tudo na mesma altura e cubra com uma camada generosa de leite condensado (deve dar mais ou menos metade de uma lata de 395g).
+
 Leve à geladeira por duas horas.
