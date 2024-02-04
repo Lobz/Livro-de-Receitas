@@ -31,7 +31,7 @@ Cubra com papel alumínio e leve ao forno a 250° por cerca de 40 minutos, tiran
 
 ## Modo de fazer
 
-Descongele o espinafre no microondas e misture com a ricota com um garfo. Misture o molho de tomate com orégano, pimenta do reino e outros temperos.
+Descongele o espinafre no microondas, pique e misture com a ricota com um garfo. Misture o molho de tomate com orégano, pimenta do reino e outros temperos.
 
 Cubra o fundo da assadeira grande com uma camada generosa de molho. Cubra com fatias de massa de lasanha. Continue preenchendo a assadeira com molho, queijo, espinafre, molho, massa. Termine com uma camada de molho.
 
