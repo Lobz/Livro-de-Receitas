@@ -3,7 +3,7 @@
 ## Ingredientes
 - Uma cebola
 - Uma cabeça de alho
-- 400g de carne (veja nota sobre corte)
+- 500g de carne (veja nota sobre corte)
 - 1/2 xícara de grão de bico, hidratada durante a noite anterior
 - 2 batatas médias
 - 4 ovos brancos bem lavados
